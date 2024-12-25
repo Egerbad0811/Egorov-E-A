@@ -7,3 +7,4 @@ https://docs.google.com/document/d/1vhp3biwLoOHrA_0-bbu0-rtrzQe6VUcTZEi_ScrafW4/
 https://drive.google.com/file/d/1FBK3zsyySMe2TSV3St9e9EICKQ2yTFdB/view?usp=drive_link
 https://drive.google.com/file/d/1dydTU2fe9yjX_BmOa29RVNE8tGBhDyOE/view?usp=drive_link
 https://docs.google.com/document/d/1rLD12uIu0BqWTbdcBA4Qp1rC6Xy47yClppAe6h7cikw/edit?usp=drive_link - конспект введение в специальность
+https://docs.google.com/document/d/1a0Wp3C8dogxt7WzIc_4uIt04coibi7pNLGsbtdhvIVw/edit?usp=drive_link - конспект конференция
