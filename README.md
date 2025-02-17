@@ -8,3 +8,4 @@ https://drive.google.com/file/d/1FBK3zsyySMe2TSV3St9e9EICKQ2yTFdB/view?usp=drive
 https://drive.google.com/file/d/1dydTU2fe9yjX_BmOa29RVNE8tGBhDyOE/view?usp=drive_link
 https://docs.google.com/document/d/1rLD12uIu0BqWTbdcBA4Qp1rC6Xy47yClppAe6h7cikw/edit?usp=drive_link - конспект введение в специальность
 https://docs.google.com/document/d/1a0Wp3C8dogxt7WzIc_4uIt04coibi7pNLGsbtdhvIVw/edit?usp=drive_link - конспект конференция
+https://docs.google.com/presentation/d/10IIJftCuG-qElBXXms_POFPdsSfTozjr/edit?usp=drive_link&ouid=100319723573852569782&rtpof=true&sd=true
